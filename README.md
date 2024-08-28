@@ -143,7 +143,7 @@ ProbiusOfficial
 
 ## 十、代理购买推荐
 
-- [第二家代理池购买点击这里跳转](https://www.kuaidaili.com/?ref=pglfmm887dmw)
+- 这几家先停止，存在一定问题，等修复协调好
 - [各大运营商流量卡](https://172.lot-ml.com/ProductEn/Index/0b7c9adef5e9648f)
 
 
